@@ -1,7 +1,3 @@
-# Ujicoba
-
-
-aniorioaejfbiuaroiiu
 Kelompok ...
 
 1. nama anggota 1
